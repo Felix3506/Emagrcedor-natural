@@ -450,3 +450,4 @@ Clique no botão abaixo e garanta sua cópia com **desconto especial**:
 
 💚 Transforme seu corpo e sua saúde com métodos naturais. Sua nova vida começa agora!
 
+
